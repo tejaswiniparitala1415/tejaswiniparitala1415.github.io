@@ -1,0 +1,2 @@
+# Tejaswini Paritala
+ Personal Portfolio
